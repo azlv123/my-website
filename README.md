@@ -2,7 +2,3 @@
 
 
 i am realy new to coding so dont expect something big here
-
-##### so lolololololololololololololololololol
-##### lololololololololololololololollololololol
-##### ezezezezezezezezezezezezezezez
